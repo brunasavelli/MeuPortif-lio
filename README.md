@@ -1,0 +1,1 @@
+Neste repositório você encontrará meu portifólio e uma coleção dos principais projetos que desenvolvi ao longo dos meus estudos. Cada trabalho reflete meu aprendizado, criatividade e dedicação para transformar minhas ideias em realidade.
